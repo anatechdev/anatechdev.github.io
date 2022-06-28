@@ -1,3 +1,3 @@
 ## GitHub Pages do github.com/anatechdev
 
-[anatechdev.github.io/](https://anatechdev.github.io)
+[Instagram: @ana.tech.dev](https://www.instagram.com/ana.tech.dev)
